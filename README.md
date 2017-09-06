@@ -1,2 +1,2 @@
 # shiny-happiness-1-
-Click here!
+Егор Скорупич. 2 курс, 4 группа, ПОИТ.
